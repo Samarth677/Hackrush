@@ -1,7 +1,7 @@
 # Hackrush
 
 Hello guys ,
-Have you faced problem while posting pic on insta what to right  in description for social media freaks like us we have made a  preposterous and out of the box idea of generating captions just put your photo and get a apt caption and flaunt infront of your friends.
+Have you faced problem while posting picture on social media what to write in description for social media freaks like us we have made a  preposterous and out of the box idea of generating captions just put your photo and get a apt caption and flaunt infront of your friends.
 
 
 
